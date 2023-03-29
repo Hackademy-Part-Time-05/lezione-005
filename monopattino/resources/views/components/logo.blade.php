@@ -1,0 +1,1 @@
+Logo brutto dei monopattini
